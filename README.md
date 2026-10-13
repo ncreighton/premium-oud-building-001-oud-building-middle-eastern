@@ -1,0 +1,2 @@
+# premium-oud-building-001-oud-building-middle-eastern
+Tired of oud-building guides that assume you have a full workshop and years of woodworking experience? This workshop strips away the complexity, showing you how to craft a playable Middle Eastern lute using only basic hand tools and locally sourced materials.  This isn't just another generic luthiery course. It's a step-by-step, beginner-friendly b
